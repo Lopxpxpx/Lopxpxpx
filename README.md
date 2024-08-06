@@ -1,3 +1,7 @@
 ### Bem Vindo ao meu perfil do GitHub manobrou 
 
-Devo admitir, eu queria ser um litou bit taler, um baller e uma girl que luked gud, eu would call her
+Meu nome é Lopxpxpx, e devo admitir que eu queria:
+
+- Ser um litou bit taler
+- Um baller
+- Uma girl que luked gud, eu would call her
