@@ -1,3 +1,3 @@
-### Bem Vindo ao meu perfil do GitHub. 😐
+### Bem Vindo ao meu perfil do GitHub. 
 
-Meu nome é [𝙍𝙀𝘿𝘼𝙏𝘼𝘿𝙊], mas sou conhecido como Lopxpxpx
+Devo admitir, eu queria ser um litou bit taler, um baller e uma girl que luked gud, eu would call her
