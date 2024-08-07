@@ -8,6 +8,6 @@ Meu nome é Lopxpxpx, e devo admitir que eu queria:
 
 ### Você não pode entrar em contato comigo 💙
 
-caguei poçe
+caguei puçê
 
 ![](https://pbs.twimg.com/media/FDKB70qXEAQ45GI?format=jpg&name=small)
